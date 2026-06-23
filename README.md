@@ -10,9 +10,9 @@
 
 ## 🌸 Sobre mí
 
-Me apasiona la creatividad en todas sus formas, desde el diseño web hasta el dibujo y la animación 3D.
+Me gusta crear cosas, ya sea una página web, un dibujo o una escena en 3D.
 
-Actualmente estoy aprendiendo Blender y Maya mientras sigo explorando nuevas formas de enseñar tecnología y crear experiencias digitales.
+Cuando no estoy dando clase, suelo estar jugando a videojuegos o aprendiendo algo nuevo.
 
 ---
 
