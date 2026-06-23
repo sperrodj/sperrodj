@@ -12,7 +12,7 @@
 
 Me gusta crear cosas, ya sea una página web, un dibujo o una escena en 3D.
 
-Cuando no estoy dando clase, suelo estar jugando a videojuegos o aprendiendo algo nuevo.
+Cuando no estoy dando clase, probablemente estoy jugando a algún videojuego, dibujando o aprendiendo algo nuevo con Blender y Maya.
 
 ---
 
